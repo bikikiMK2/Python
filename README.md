@@ -5,6 +5,6 @@ I had hydrogen water
 
 Ah, the sound of hydrogen🧪
 
-Ilike Python end hydorogenWater.
+I like Python end hydorogenWater.
 
 Ah,the sound of hydorogen🧪
